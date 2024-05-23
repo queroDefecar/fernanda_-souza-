@@ -7,5 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 zumbizinhachan@gmail.com 
 
+![icegif-2013](https://github.com/queroDefecar/quero-morrer/assets/170658338/57ba32bd-4438-43c1-bd40-f962ea7640da)
 
-![6978aeecd48eb2f31dfb30150babc268](https://github.com/queroDefecar/quero-morrer/assets/170658338/10cfe296-8b41-4881-ad02-f15f877c27ff)
